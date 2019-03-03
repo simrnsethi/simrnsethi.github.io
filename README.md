@@ -1,1 +1,0 @@
-# simrnsethi.github.io
